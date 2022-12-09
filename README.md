@@ -1,1 +1,1 @@
-# Tugla-K-rma
+Tuğladan geri sekmiyor
